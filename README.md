@@ -8,3 +8,4 @@ IrtaqaAzhar
 Iqra here
 saim bhai
 321 pilayyyyyy
+Farooq Ahmed 
